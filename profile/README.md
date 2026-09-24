@@ -1,4 +1,4 @@
-
+# download free Genshin scripts 2026. Our verified Genshin scripts are fully tested and ready for use.
 
 
 
